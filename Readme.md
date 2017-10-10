@@ -7,3 +7,5 @@
  Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =p
  
  Não deixe de visitar: [willianjusten.com.br](http://willianjusten.com.br)
+ 
+ Outros cursos em : [willian justen cursos](http://willianjusten.teachable.com.br)
